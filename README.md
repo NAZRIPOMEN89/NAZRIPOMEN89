@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NAZRIPOMEN89
 - 👀 I’m interested in women
 - 🌱 I’m currently learning ZzZzZz
-- 💞️ I’m looking to collaborate on nice sec
+- 💞️ I’m looking to collaborate on nice sex
 - 📫 How to reach me 0167272759
 
 <!---
